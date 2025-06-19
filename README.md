@@ -9,3 +9,4 @@ Our goal is to make learning simple and accessible for everyone, whether you're 
 Visit our homepage to explore hundreds of useful tutorials and improve your productivity today:  
 👉 [Gif.How – Learn Office Tools the Easy Way](https://gif.how)
 
+My LinkedIn [Gif.How – Learn Office Tools the Easy Way](https://www.linkedin.com/in/gif-how/)

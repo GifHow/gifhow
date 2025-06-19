@@ -7,6 +7,6 @@
 Our goal is to make learning simple and accessible for everyone, whether you're a beginner or just looking for a quick refresher. Each tutorial is designed to be clear, concise, and visual — so you can get things done without wasting time.
 
 Visit our homepage to explore hundreds of useful tutorials and improve your productivity today:  
-👉 (https://gif.how)
+👉 https://gif.how
 
 My LinkedIn [Gif.How – Learn Office Tools the Easy Way](https://www.linkedin.com/in/gif-how/)
